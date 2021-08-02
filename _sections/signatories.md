@@ -138,3 +138,5 @@ Kent Community Foundation
 The DWF Foundation
 
 The Veolia Environmental Trust
+
+Bridge House Estates
