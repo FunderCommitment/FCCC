@@ -61,7 +61,7 @@ Hagan Family Foundation
 
 Network for Social Change Charitable Trust
 
-Guy's and St Thomas' Charity
+Guy's and St Thomas' Foundation
 
 Comic Relief
 
