@@ -154,3 +154,7 @@ The Worshipful Company of Grocers' Charity
 Foundation for Future London
 
 Inspiring Scotland
+
+St Giles & St George
+
+The A Team Foundation
