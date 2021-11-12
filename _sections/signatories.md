@@ -158,3 +158,6 @@ Inspiring Scotland
 St Giles & St George
 
 The A Team Foundation
+
+Calouste Gulbenkian Foundation (UK Branch) \
+*signatory to the International Philanthropy Commitment on Climate Change*
