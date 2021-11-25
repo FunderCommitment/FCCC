@@ -161,3 +161,7 @@ The A Team Foundation
 
 Calouste Gulbenkian Foundation (UK Branch) \
 *signatory to the International Philanthropy Commitment on Climate Change*
+
+The Dixon Foundation
+
+UnLtd
