@@ -165,3 +165,5 @@ Calouste Gulbenkian Foundation (UK Branch) \
 The Dixon Foundation
 
 UnLtd
+
+Bishop Radford Trust
