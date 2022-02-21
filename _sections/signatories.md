@@ -170,7 +170,7 @@ Grantscape
 
 UK Community Foundations
 
-The Castana Trust
+The Castansa Trust
 
 Brian Mercer Trust
 
