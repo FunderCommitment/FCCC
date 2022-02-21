@@ -55,8 +55,6 @@ The Samworth Foundation
 
 John Ellerman Foundation
 
-Bulb Foundation
-
 Hagan Family Foundation
 
 Network for Social Change Charitable Trust
@@ -175,3 +173,5 @@ UK Community Foundations
 The Castana Trust
 
 Brian Mercer Trust
+
+Co-op Foundation
