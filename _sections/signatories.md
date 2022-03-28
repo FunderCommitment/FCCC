@@ -179,3 +179,5 @@ Co-op Foundation
 Greenwood Place
 
 Essex Community Foundation
+
+Barnwood Trust
