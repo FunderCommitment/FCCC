@@ -183,3 +183,7 @@ Essex Community Foundation
 Barnwood Trust
 
 BBC Children in Need
+
+Maitri Trust
+
+Bedfordshire & Luton Community Foundation
