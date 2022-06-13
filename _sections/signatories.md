@@ -187,3 +187,5 @@ BBC Children in Need
 Maitri Trust
 
 Bedfordshire & Luton Community Foundation
+
+Cripplegate Foundation
