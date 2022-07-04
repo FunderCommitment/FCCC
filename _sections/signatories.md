@@ -189,3 +189,7 @@ Maitri Trust
 Bedfordshire & Luton Community Foundation
 
 Cripplegate Foundation
+
+Nottinghamshire Community Foundation
+
+Inverclyde Community Fund
