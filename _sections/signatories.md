@@ -195,3 +195,7 @@ Nottinghamshire Community Foundation
 Inverclyde Community Fund
 
 Youth Music
+
+Community Foundation Tyne & Wear and Northumberland
+
+Andrews Charitable Trust
